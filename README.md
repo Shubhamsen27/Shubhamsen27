@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Shubham Sen
-- 👀 I’m interested in Business Marketing 
+- 👀 I’m interested in Business & Marketing 
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
